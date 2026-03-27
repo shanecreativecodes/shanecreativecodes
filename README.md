@@ -22,7 +22,7 @@
 
 ## 📫 Connect With Me
 - 📧 Email: shanemajorx@gmail.com  
-- 💼 LinkedIn: (add your link here later)
+- 💼 LinkedIn: https://www.linkedin.com/in/shane-mkhwanazi-92b0b6299/
 
 ---
 
